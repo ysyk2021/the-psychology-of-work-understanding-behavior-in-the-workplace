@@ -1,5 +1,3 @@
-Chapter 5: Group Dynamics and Teamwork
-======================================
 
 Group dynamics and teamwork are essential components of a successful workplace, as they promote collaboration, communication, and effective decision-making. In this chapter, we will explore group formation and development, communication in groups, group decision making, and effective teamwork.
 

@@ -1,5 +1,3 @@
-Chapter 4: Stress and Well-being in the Workplace
-=================================================
 
 Stress is a common experience in the workplace, and it can have a significant impact on employee well-being and productivity. In this chapter, we will explore the sources of workplace stress, the impact of workplace stress on well-being, and coping strategies for workplace stress.
 

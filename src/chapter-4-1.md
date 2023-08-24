@@ -1,5 +1,3 @@
-Sources of Workplace Stress
-===============================================================================
 
 Stress is a common experience in the workplace, and it can have significant effects on employee well-being and job performance. In this chapter, we will explore sources of workplace stress.
 

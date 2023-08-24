@@ -1,5 +1,3 @@
-Group Decision Making
-=============================================================
 
 Group decision making is a key aspect of teamwork and can lead to better outcomes than individual decision making. In this chapter, we will explore the benefits and challenges of group decision making and strategies for improving the process.
 

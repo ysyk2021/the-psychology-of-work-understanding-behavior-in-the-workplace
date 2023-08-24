@@ -1,5 +1,3 @@
-Promoting Ethical Behavior in the Workplace
-=============================================================================================
 
 Ethics is an important factor in promoting a positive workplace culture and ensuring that employees behave in a responsible and ethical manner. In this chapter, we will explore the importance of promoting ethical behavior in the workplace and strategies for achieving this goal.
 

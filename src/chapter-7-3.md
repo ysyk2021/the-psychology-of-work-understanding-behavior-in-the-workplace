@@ -1,5 +1,3 @@
-Strategies for Promoting a Positive Organizational Culture and Climate
-=====================================================================================================================
 
 Organizational culture and climate play a critical role in shaping behavior in the workplace. In this chapter, we will explore strategies for promoting a positive organizational culture and climate.
 

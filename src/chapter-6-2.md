@@ -1,5 +1,3 @@
-The Role of Power and Influence in Leadership
-===================================================================================
 
 Leadership and management are essential components of the modern workplace. Whether you are managing a team or leading an organization, understanding the role of power and influence is critical to being an effective leader. In this chapter, we will explore the dynamics of power and influence in leadership.
 

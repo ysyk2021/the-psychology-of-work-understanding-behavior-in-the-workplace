@@ -1,5 +1,3 @@
-Communication in Groups
-===============================================================
 
 Effective communication is essential for successful group dynamics and teamwork. In this chapter, we will explore the importance of communication in groups and strategies for improving communication.
 

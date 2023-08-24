@@ -1,5 +1,3 @@
-Chapter 7: Organizational Culture and Climate
-=============================================
 
 Organizational culture and climate are important factors that impact behavior and performance in the workplace. In this chapter, we will define organizational culture and climate, explore the impact of culture on behavior in the workplace, and discuss strategies for promoting a positive organizational culture and climate.
 

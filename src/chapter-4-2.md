@@ -1,5 +1,3 @@
-The Impact of Workplace Stress on Well-being
-===============================================================================================
 
 Workplace stress can have a significant impact on employee well-being. In this chapter, we will explore the ways in which workplace stress can affect well-being.
 

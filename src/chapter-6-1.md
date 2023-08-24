@@ -1,5 +1,3 @@
-Leadership Styles and Effectiveness
-=========================================================================
 
 Leadership and management are critical components of the modern workplace. Effective leadership can inspire and motivate employees, leading to greater productivity and organizational success. In this chapter, we will explore different leadership styles and their effectiveness.
 

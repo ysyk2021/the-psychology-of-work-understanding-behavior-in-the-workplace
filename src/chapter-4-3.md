@@ -1,5 +1,3 @@
-Coping Strategies for Workplace Stress
-=========================================================================================
 
 Workplace stress is a common issue that can impact employee well-being and job performance. In this chapter, we will explore coping strategies for workplace stress.
 

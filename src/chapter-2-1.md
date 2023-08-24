@@ -1,5 +1,3 @@
-Personality and Work Behavior
-=================================================================================
 
 Individual differences play a significant role in employee behavior and performance in the workplace. One important individual difference is personality, which can impact how individuals interact with others, approach tasks, and handle stress. In this chapter, we will explore the relationship between personality and work behavior.
 

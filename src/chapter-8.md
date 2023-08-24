@@ -1,5 +1,3 @@
-Chapter 8: Organizational Change and Development
-================================================
 
 Organizational change is an essential part of maintaining a successful business, as organizations must adapt to changes in the marketplace, technology, and consumer preferences. In this chapter, we will explore the types of organizational change, the process of organizational change, and strategies for overcoming resistance to change.
 

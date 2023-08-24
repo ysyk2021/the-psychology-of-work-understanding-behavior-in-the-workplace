@@ -1,5 +1,3 @@
-Chapter 9: Ethics and Diversity in the Workplace
-================================================
 
 Ethics and diversity are two important factors that impact behavior and performance in the workplace. In this chapter, we will explore ethical issues in the workplace, strategies for promoting ethical behavior, and understanding and managing diversity in the workplace.
 

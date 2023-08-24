@@ -1,5 +1,3 @@
-Cognitive Abilities and Work Behavior
-=========================================================================================
 
 Individual differences play a significant role in employee behavior and performance in the workplace. One important individual difference is cognitive ability, which refers to an individual's capacity to process and apply information effectively. In this chapter, we will explore the relationship between cognitive abilities and work behavior.
 

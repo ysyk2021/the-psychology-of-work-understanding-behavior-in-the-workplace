@@ -1,5 +1,3 @@
-Emotional Intelligence and Work Behavior
-============================================================================================
 
 Individual differences play a significant role in employee behavior and performance in the workplace. One important individual difference is emotional intelligence (EI), which refers to the ability to perceive, manage, and express emotions effectively. In this chapter, we will explore the relationship between emotional intelligence and work behavior.
 

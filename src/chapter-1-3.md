@@ -1,5 +1,3 @@
-Historical Perspectives on the Psychology of Work
-====================================================================================================
 
 The psychology of work is a multidisciplinary field that examines the various factors that impact employee behavior and performance in the workplace. In this chapter, we will explore the historical perspectives that have shaped the field of psychology of work.
 

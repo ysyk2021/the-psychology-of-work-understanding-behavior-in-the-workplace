@@ -1,5 +1,3 @@
-Management Practices and Their Impact on Employee Behavior
-================================================================================================
 
 Management practices can have a significant impact on employee behavior and well-being. In this chapter, we will explore the impact of management practices on employee behavior and strategies for promoting positive management practices.
 

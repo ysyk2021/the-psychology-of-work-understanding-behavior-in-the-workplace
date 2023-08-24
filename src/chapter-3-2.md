@@ -1,5 +1,3 @@
-Factors Influencing Job Satisfaction
-================================================================================
 
 Job satisfaction refers to the level of contentment and fulfillment an employee experiences in their job. In this chapter, we will explore the factors that influence job satisfaction.
 

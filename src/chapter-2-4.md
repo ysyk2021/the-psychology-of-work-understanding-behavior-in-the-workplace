@@ -1,5 +1,3 @@
-Values and Work Behavior
-============================================================================
 
 Individual differences play a significant role in employee behavior and performance in the workplace. One important individual difference is values, which refer to an individual's beliefs and attitudes about what is important or desirable. In this chapter, we will explore the relationship between values and work behavior.
 

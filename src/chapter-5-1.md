@@ -1,5 +1,3 @@
-Group Formation and Development
-=======================================================================
 
 Group formation and development are critical factors in understanding group dynamics and effective teamwork. In this chapter, we will explore the stages of group formation and strategies for promoting positive group development.
 

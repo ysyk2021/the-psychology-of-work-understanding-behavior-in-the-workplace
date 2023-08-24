@@ -1,5 +1,3 @@
-Chapter 6: Leadership and Management
-====================================
 
 Leadership and management are essential components of a successful workplace. In this chapter, we will explore different leadership styles and their effectiveness, the role of power and influence in leadership, and how management practices impact employee behavior.
 

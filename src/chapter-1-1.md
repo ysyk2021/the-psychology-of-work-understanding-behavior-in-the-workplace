@@ -1,5 +1,3 @@
-Defining the Psychology of Work
-==================================================================================
 
 The psychology of work is a multidisciplinary field that examines the various factors that impact employee behavior and performance in the workplace. In this chapter, we will explore the definition of the psychology of work and its significance.
 

@@ -1,5 +1,3 @@
-Ethical Issues in the Workplace
-=================================================================================
 
 Ethics are an important component of behavior in the workplace, guiding decision-making and establishing expectations for conduct. In this chapter, we will explore ethical issues in the workplace.
 

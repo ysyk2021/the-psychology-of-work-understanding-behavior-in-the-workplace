@@ -1,5 +1,3 @@
-Defining Organizational Culture and Climate
-==========================================================================================
 
 Organizational culture and climate refer to the shared values, beliefs, and practices that shape behavior within an organization. In this chapter, we will explore the definitions of organizational culture and climate.
 

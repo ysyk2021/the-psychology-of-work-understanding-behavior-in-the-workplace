@@ -1,5 +1,3 @@
-Chapter 3: Motivation and Job Satisfaction
-==========================================
 
 Motivation and job satisfaction are important factors that impact behavior and performance in the workplace. In this chapter, we will explore different theories of motivation, factors influencing job satisfaction, and the impact of job satisfaction on work behavior.
 

@@ -1,5 +1,3 @@
-The Impact of Culture on Behavior in the Workplace
-=================================================================================================
 
 Organizational culture refers to the shared values, beliefs, and practices that shape behavior within an organization. In this chapter, we will explore the impact of organizational culture on behavior in the workplace.
 

@@ -1,5 +1,3 @@
-Effective Teamwork
-==========================================================
 
 Effective teamwork is essential for achieving organizational goals and promoting employee well-being. In this chapter, we will explore the characteristics of effective teamwork and strategies for promoting it.
 

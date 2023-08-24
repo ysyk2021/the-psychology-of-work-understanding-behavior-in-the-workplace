@@ -1,5 +1,3 @@
-The Process of Organizational Change
-======================================================================================
 
 Organizational change is a complex process that requires careful planning, implementation, and evaluation. In this chapter, we will explore the steps involved in the process of organizational change.
 

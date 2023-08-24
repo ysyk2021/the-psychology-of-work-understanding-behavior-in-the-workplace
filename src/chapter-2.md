@@ -1,5 +1,3 @@
-Chapter 2: Individual Differences in the Workplace
-==================================================
 
 Individual differences in personality, emotional intelligence, cognitive abilities, and values can all impact work behavior and performance. In this chapter, we will explore these individual differences and their impact on work behavior.
 

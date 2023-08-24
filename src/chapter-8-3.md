@@ -1,5 +1,3 @@
-Resistance to Change and Strategies for Overcoming It
-=======================================================================================================
 
 Organizational change can be met with resistance from employees, which can hinder the success of the change initiative. In this chapter, we will explore the reasons for resistance to change and strategies for overcoming it.
 

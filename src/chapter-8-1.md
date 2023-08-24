@@ -1,5 +1,3 @@
-Types of Organizational Change
-================================================================================
 
 Organizational change is an important process that allows organizations to adapt to a changing environment and remain competitive. In this chapter, we will explore different types of organizational change.
 

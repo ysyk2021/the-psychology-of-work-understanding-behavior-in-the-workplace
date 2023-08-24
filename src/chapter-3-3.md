@@ -1,5 +1,3 @@
-The Impact of Job Satisfaction on Work Behavior
-============================================================================================
 
 Job satisfaction is a critical component of employee well-being and motivation in the workplace. When employees are satisfied with their job, they are more likely to be productive, engaged, and committed to their organization. In this chapter, we will explore the impact of job satisfaction on work behavior.
 

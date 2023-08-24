@@ -1,5 +1,3 @@
-Theories of Motivation
-==================================================================
 
 Motivation is a critical factor in understanding employee behavior and job satisfaction. In this chapter, we will explore some of the major theories of motivation.
 
