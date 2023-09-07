@@ -18,3 +18,7 @@ In this book, we will cover:
 Whether you are a manager, HR professional, or employee, this book will provide you with valuable insights into the psychology of work and how it can be applied in the workplace. By understanding the factors that influence behavior in the workplace, you can create a more positive and productive work environment that benefits both individuals and the organization as a whole.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
