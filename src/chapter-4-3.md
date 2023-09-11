@@ -1,5 +1,4 @@
-Chapter 12: Coping Strategies for Workplace Stress
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Workplace stress can have detrimental effects on individuals and organizations. In this chapter, we will explore various coping strategies that individuals can utilize to effectively manage and reduce workplace stress. These strategies can help promote well-being, enhance resilience, and improve overall work performance.
 

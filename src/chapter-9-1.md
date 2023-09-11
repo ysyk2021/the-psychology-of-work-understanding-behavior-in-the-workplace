@@ -1,5 +1,4 @@
-Chapter 12: Ethical Issues in the Workplace
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Ethics plays a crucial role in shaping behavior and decision-making within the workplace. In this chapter, we will delve into the ethical issues that can arise in work settings, explore the importance of ethical behavior, and discuss strategies for promoting an ethical work environment.
 

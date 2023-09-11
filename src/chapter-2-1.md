@@ -1,5 +1,4 @@
-Chapter 6: Personality and Work Behavior
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Personality plays a crucial role in shaping individuals' behavior and performance in the workplace. In this chapter, we will explore the concept of personality, examine how different personality traits influence work-related behaviors, and discuss the implications of understanding personality for effective management and organizational success.
 

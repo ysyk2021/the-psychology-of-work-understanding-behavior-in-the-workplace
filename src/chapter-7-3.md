@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Promoting a Positive Organizational Culture and Climate
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a positive organizational culture and climate is essential for fostering employee engagement, satisfaction, and overall organizational success. In this chapter, we will explore strategies that organizations can employ to promote a positive culture and climate within the workplace.
 

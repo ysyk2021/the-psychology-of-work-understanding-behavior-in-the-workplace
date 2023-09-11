@@ -1,5 +1,4 @@
-Chapter 17: Group Decision Making
-=================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Group decision making is a complex process that involves multiple individuals coming together to make choices or solve problems collectively. In this chapter, we will explore the intricacies of group decision making, examine its benefits and challenges, and discuss strategies for enhancing the effectiveness of group decision-making processes in the workplace.
 

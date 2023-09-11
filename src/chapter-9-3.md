@@ -1,5 +1,4 @@
-Chapter 10: Understanding and Managing Diversity in the Workplace
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Diversity in the workplace encompasses the presence of individuals from different backgrounds, cultures, perspectives, abilities, and identities. In this chapter, we will explore the importance of understanding and managing diversity, the benefits it brings to organizations, and strategies for creating an inclusive work environment.
 

@@ -1,5 +1,4 @@
-Chapter 10: Leadership Styles and Effectiveness
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership styles play a critical role in shaping the behavior, performance, and effectiveness of individuals and organizations. In this chapter, we will explore different leadership styles, examine their impact on employee motivation and job satisfaction, discuss situational leadership approaches, and provide insights on how leaders can enhance their effectiveness through adaptable leadership styles.
 

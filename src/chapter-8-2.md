@@ -1,5 +1,4 @@
-Chapter 8: The Process of Organizational Change
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Organizational change is a complex and dynamic process that involves transforming an organization's structure, strategies, processes, or culture. In this chapter, we will explore the stages and factors involved in the process of organizational change.
 

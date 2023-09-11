@@ -1,5 +1,4 @@
-Chapter 5: Factors Influencing Job Satisfaction
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Job satisfaction is influenced by a variety of factors that shape an individual's experience and perception of their work. In this chapter, we will explore the key factors that influence job satisfaction and their impact on employee well-being and organizational outcomes.
 

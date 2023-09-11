@@ -1,5 +1,4 @@
-Chapter 14: Promoting Ethical Behavior in the Workplace
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Promoting ethical behavior is essential for creating a work environment that upholds integrity, trust, and respect. In this chapter, we will explore strategies and initiatives that organizations can implement to foster and encourage ethical behavior among employees.
 

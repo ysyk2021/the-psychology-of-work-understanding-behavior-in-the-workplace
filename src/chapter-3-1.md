@@ -1,5 +1,4 @@
-Chapter 8: Theories of Motivation
-=================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Motivation is a critical factor that drives behavior and performance within the workplace. In this chapter, we will explore various theories of motivation that help us understand why individuals behave the way they do in their work settings. These theories shed light on the factors that influence employee motivation and provide insights into creating a motivating work environment.
 

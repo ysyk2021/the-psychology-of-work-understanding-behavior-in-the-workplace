@@ -1,5 +1,4 @@
-Chapter 5: Defining Organizational Culture and Climate
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Organizational culture and climate are fundamental aspects of understanding behavior in the workplace. In this chapter, we will delve into the definitions of organizational culture and climate, examine their components, and discuss their influence on employee attitudes, behaviors, and overall organizational functioning.
 

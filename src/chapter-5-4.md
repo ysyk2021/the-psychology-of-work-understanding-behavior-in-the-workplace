@@ -1,5 +1,4 @@
-Chapter 9: Effective Teamwork
-=============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective teamwork is essential for achieving organizational goals and fostering a positive work environment. In this chapter, we will explore the key components of effective teamwork, the benefits it brings to individuals and organizations, and strategies for developing and maintaining successful teams.
 

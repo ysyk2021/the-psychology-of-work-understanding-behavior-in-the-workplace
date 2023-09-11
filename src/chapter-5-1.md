@@ -1,5 +1,4 @@
-Chapter 5: Group Formation and Development
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Group formation and development are essential aspects of understanding behavior in the workplace. In this chapter, we will explore the process of group formation, stages of group development, and factors that influence group dynamics and effectiveness.
 

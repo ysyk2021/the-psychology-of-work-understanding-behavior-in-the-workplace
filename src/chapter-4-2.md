@@ -1,5 +1,4 @@
-Chapter 11: The Impact of Workplace Stress on Well-being
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Workplace stress can have a significant impact on an individual's well-being. In this chapter, we will explore the effects of workplace stress on various aspects of well-being, including physical health, mental health, and overall quality of life. We will also discuss strategies for managing and reducing workplace stress to promote well-being.
 

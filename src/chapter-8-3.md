@@ -1,5 +1,4 @@
-Chapter 12: Resistance to Change and Strategies for Overcoming It
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Resistance to change is a natural response that individuals and organizations often experience when confronted with new initiatives or transformations. In this chapter, we will explore the reasons behind resistance to change and provide strategies for overcoming it.
 

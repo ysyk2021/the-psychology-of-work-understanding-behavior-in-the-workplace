@@ -1,5 +1,4 @@
-Chapter 7: The Impact of Job Satisfaction on Work Behavior
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Job satisfaction plays a significant role in shaping work behavior and employee outcomes within the workplace. In this chapter, we will explore the influence of job satisfaction on various aspects of work behavior and its implications for individuals and organizations.
 

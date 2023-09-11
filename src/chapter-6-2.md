@@ -1,5 +1,4 @@
-Chapter 6: The Role of Power and Influence in Leadership
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding the dynamics of power and influence is essential for effective leadership within the workplace. In this chapter, we will explore the significance of power and influence, examine different types of power, discuss the ethical considerations, and provide insights on how leaders can leverage power and influence to achieve positive outcomes.
 

@@ -1,5 +1,4 @@
-Chapter 8: The Impact of Culture on Behavior in the Workplace
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Culture plays a significant role in shaping behavior in the workplace. In this chapter, we will explore the influence of culture on employee attitudes, values, communication styles, decision-making processes, and overall behavior within organizations.
 

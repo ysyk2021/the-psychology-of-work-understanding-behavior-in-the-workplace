@@ -1,5 +1,4 @@
-Chapter 13: Emotional Intelligence and Work Behavior
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Emotional intelligence (EI) is a critical aspect of understanding work behavior in the workplace. In this chapter, we will explore the concept of emotional intelligence, examine how it influences work-related behaviors, and discuss the implications of understanding emotional intelligence for effective leadership, teamwork, and overall organizational success.
 

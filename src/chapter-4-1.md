@@ -1,5 +1,4 @@
-Chapter 8: Sources of Workplace Stress
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Workplace stress is a prevalent issue that can significantly impact employee well-being and organizational performance. In this chapter, we will explore the various sources of workplace stress, examine their effects on individuals and organizations, and provide insights on how to manage and mitigate stress effectively.
 

@@ -1,5 +1,4 @@
-Chapter 12: Communication in Groups
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication is essential for successful collaboration and decision-making within groups in the workplace. In this chapter, we will explore the dynamics of communication in groups, examine barriers to effective communication, and discuss strategies for improving communication effectiveness within group settings.
 

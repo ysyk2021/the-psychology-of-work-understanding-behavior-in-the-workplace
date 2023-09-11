@@ -1,5 +1,4 @@
-Chapter 9: Cognitive Abilities and Work Behavior
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Cognitive abilities, also known as intellectual abilities, are fundamental mental capabilities that play a critical role in work behavior and performance. In this chapter, we will explore the concept of cognitive abilities, examine how different cognitive abilities influence work-related behaviors, and discuss the implications of understanding cognitive abilities for effective talent management and organizational success.
 

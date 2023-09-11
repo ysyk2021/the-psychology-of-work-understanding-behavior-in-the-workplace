@@ -1,5 +1,4 @@
-Chapter 7: Types of Organizational Change
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Organizational change can take various forms and occur at different levels within an organization. In this chapter, we will explore the different types of organizational change that organizations may undergo.
 

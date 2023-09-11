@@ -1,5 +1,4 @@
-Chapter 8: Values and Work Behavior
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Values play a significant role in shaping individuals' behavior and attitudes in the workplace. In this chapter, we will explore the concept of values, examine how values influence work-related decisions and actions, and discuss the implications of aligning personal and organizational values.
 
